@@ -2,8 +2,8 @@
 
 # Privacy Policy for Habit Goal Tracker
 
-**Effective Date:** January 7, 2025
-**Last Updated:** January 7, 2025
+**Effective Date:** November 15th, 2025
+**Last Updated:** November 14th, 2025
 
 ## Introduction
 
